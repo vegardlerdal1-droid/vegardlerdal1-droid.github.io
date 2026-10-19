@@ -1,1 +1,1 @@
-# vegardlerdal1-droid.github.io.
+# vegardlerdal1-droid.github.io
